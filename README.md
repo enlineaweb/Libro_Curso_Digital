@@ -4,7 +4,7 @@ Donde encontrará interesantes y útiles libro-cursos desde Internet para trabaj
 
 Ya está disponible el curso digital 'Enviar y Recibir Bitcoin'
 
-[Descargar curso aquí](https://wp.me/pbuIS5-2Q)
+[Saber más y descargar curso aquí](https://github.com/enlineaweb/Libro_Curso_Digital/blob/master/bitcoin.md)
 
 ## Próximamente cursos en línea:
 
