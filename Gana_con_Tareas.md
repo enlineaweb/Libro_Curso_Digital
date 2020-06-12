@@ -4,5 +4,4 @@
 -----------------------------
 **Guía gratis / Verificar Cuenta de Paypal. (Primero debes seguirme en Spotify)**
 _____________________________
-
-[Registro Gratis](https://bit.ly/guia-gratis-1)
+## [Registro Gratis](https://bit.ly/guia-gratis-1) ##
