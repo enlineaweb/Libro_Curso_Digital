@@ -1,7 +1,8 @@
-#Trabajo Desde Casa#
+# Trabajo Desde Casa #
 ----------------------------------------
 **Gana dinero completando tareas y encuestas, requiere verificar cuenta, para saber más visita este enlace**
-**Guía gratis / Verificar Cuenta de Paypal.
+-----------------------------
+**Guía gratis / Verificar Cuenta de Paypal.**
 ______________________________
 (Primero debes seguirme en Spotify)
 _____________________________
